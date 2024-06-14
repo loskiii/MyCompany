@@ -1,1 +1,1 @@
-My Company(Furniture Emporium)
+My Company(Loski's Furniture Emporium)
